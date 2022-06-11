@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @juliusp01
-- 👀 I’m interested in 2D
+- 👀 I’m interested in YOU.. yes YOU
 - 🌱 I’m currently learning Java
 - 📫 Instagram @julll_1111
 
