@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @juliusp01
 - 👀 I’m interested in YOU.. yes YOU
-- 🌱 I’m currently learning Java
+- 🌱 I’m currently learning to be a master of Front End Developer
 - 📫 Instagram @julll_1111
 
 <!---
